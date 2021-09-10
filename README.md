@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+I'm Fahad Mohammed , and i am Software Engineer👾
+
+If You Need Any Programming Help You Can Ask Me in Any Time on twitter  💬
+
+
+I hope You Enjoy In My Account 🤩
+
 <!--
 **ip274/ip274** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
