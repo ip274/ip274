@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm Fahad Mohammed , and i am Software Engineer👾
+I'm Fahad Mohammed , and i am Software Engineering Student👾
 
 If You Need Any Programming Help You Can Ask Me in Any Time on twitter  💬
 
